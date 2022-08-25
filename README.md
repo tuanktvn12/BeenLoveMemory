@@ -1,2 +1,3 @@
-Update background & lang vi_VN 10/06/2022
-iu Pé Diệu:3
+Tuấn của Xu <3
+Cư Tê
+iu Em <3
